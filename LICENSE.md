@@ -1,4 +1,4 @@
-# 
+# Intego Mac Internet Security for macOS vip Script: password-sharing & secure-notes offers the most advanced Intego Mac Internet Security for macOS script, with password-sharing
 
 
 
